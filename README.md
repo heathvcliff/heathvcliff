@@ -1,6 +1,6 @@
 <div align="center">
     
-![](https://i.postimg.cc/B6JRffbN/Heishou-Pack-You-Branch-Adept-Heathcliff-Idle-Animation-(1).gif)
+![](https://postimg.cc/KKs0tVng)
 
 <p align="center" width="100%">
     <img width="33%" src="image">
