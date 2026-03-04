@@ -1,6 +1,6 @@
 <div align="center">
     
-![](https://limbuscompany.wiki.gg/index.php?curid=29635)
+![](https://limbuscompany.wiki.gg/images/Heishou_Pack_-_You_Branch_Adept_Heathcliff_Idle_Animation.gif)
 
 <p align="center" width="100%">
     <img width="33%" src="image">
