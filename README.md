@@ -1,10 +1,3 @@
 <div align="center">
     
-![](https://i.postimg.cc/HkQSYvf9/Heishou-Pack-You-Branch-Adept-Heathcliff-Idle-Sprite.png)
-
-<p align="center" width="100%">
-    <img width="33%" src="image">
-
-.
-
-[ata](https://lickylee.atabook.org/) . [rentry 1](https://rentry.co/life-steal-smp) . [rentry 2](https://rentry.co/licky-lee) . [pt specific rentry](https://rentry.co/yayayayyh)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hurricane&size=35&pause=1000&color=FFEF23&width=435&lines=%C2%A1Por+alcanzar+la+estrella+inalcanzable!)](https://git.io/typing-svg)
