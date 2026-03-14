@@ -4,7 +4,7 @@
 
 ![](https://i.postimg.cc/0NnHBQhy/Don-Quixote-Icon.webp)
 
-yoink or heathcliff <br> she he cis female
+**yoink** or **heathcliff** <br> she he cis female
   
   ━━━━━━━━━━
 
@@ -12,7 +12,9 @@ heathcliff + outis fictionkin <br> i will be rude at certain times
 
 ━━━━━━━━━━
 
-always with friends; fat gc, kiwi or bryce <br> semi-sensitive person <br> basic dni, i dont block
+always with friends; **fat gc**, **kiwi** or **bryce** <br> semi-sensitive person <br> basic dni, i dont block
+
+[ata](https://lickylee.atabook.org/)
 
 **★**
   
