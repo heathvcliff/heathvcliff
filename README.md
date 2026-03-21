@@ -14,7 +14,7 @@ heathcliff + outis fictionkin <br> i will be rude at certain times
 
 always with friends; **fat gc**, **kiwi** or **bryce** <br> semi-sensitive person <br> basic dni, i dont block
 
-[ata](https://lickylee.atabook.org/)
+[ata](https://lickylee.atabook.org/) <br> [AWARENESS DOC](https://docs.google.com/document/d/1IvDbOA0uHvQxTqohKRWKbwG1NxhhI0n7ztVKlnlgufI/edit?tab=t.0)
 
 **★**
   
