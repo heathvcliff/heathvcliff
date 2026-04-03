@@ -1,8 +1,8 @@
 <div align="center">
     
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hurricane&size=35&pause=1000&color=FFEF23&width=435&lines=%C2%A1Por+alcanzar+la+estrella+inalcanzable!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hurricane&size=21&pause=1000&color=8B9C15&width=435&lines=Die+b%C3%B6se+Welt+indessen+begann+schon+mitten+in+unserem+eigenen+Hause.)](https://git.io/typing-svg)
 
-![](https://i.postimg.cc/0NnHBQhy/Don-Quixote-Icon.webp)
+![](https://i.postimg.cc/kgt5qSWn/Sinclair-Icon.webp)
 
 **yoink** or **heathcliff** <br> she he cis female
   
