@@ -18,4 +18,4 @@ always with friends; **fat gc**, **kiwi** or **bryce** <br> semi-sensitive perso
 
 **★**
   
-  [![Hits](https://hits.sh/github.com/heathvcliff/hits.svg?label=blood%20consumed&color=fded96&labelColor=c82823)](https://hits.sh/github.com/heathvcliff/hits/)
+  [![Hits](https://hits.sh/github.com/heathvcliff/hits.svg?label=chicks&color=626c0e&labelColor=94a221)](https://hits.sh/github.com/heathvcliff/hits/)
