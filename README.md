@@ -8,7 +8,7 @@
   
   ━━━━━━━━━━
 
-heathcliff + outis fictionkin <br> i will be rude at certain times
+heathcliff fictionkin <br> i will be rude at certain times
 
 ━━━━━━━━━━
 
