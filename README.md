@@ -1,8 +1,8 @@
 <div align="center">
     
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hurricane&size=21&pause=1000&color=8B9C15&width=435&lines=Die+b%C3%B6se+Welt+indessen+begann+schon+mitten+in+unserem+eigenen+Hause.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Island+Moments&size=25&pause=1000&color=4E3076&width=435&separator=%3C&lines=I+have+not+broken+your+heart+-+YOU+have;+and+in%3Cbreaking+it%2C+you+have+broken+mine.)](https://git.io/typing-svg)
 
-![](https://i.postimg.cc/kgt5qSWn/Sinclair-Icon.webp)
+![](https://i.postimg.cc/BbQYWPB5/Heathcliff-Icon.webp)
 
 **yoink** or **heathcliff** <br> she he cis female
   
@@ -18,4 +18,4 @@ always with friends; **fat gc**, **kiwi** or **bryce** <br> semi-sensitive perso
 
 **★**
   
-  [![Hits](https://hits.sh/github.com/heathvcliff/hits.svg?label=chicks&color=626c0e&labelColor=94a221)](https://hits.sh/github.com/heathvcliff/hits/)
+  [![Hits](https://hits.sh/github.com/heathvcliff/hits.svg?label=alphas&color=381f59&labelColor=4e3076)](https://hits.sh/github.com/heathvcliff/hits/)
