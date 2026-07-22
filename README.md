@@ -4,7 +4,7 @@
 
 ![](https://i.postimg.cc/BbQYWPB5/Heathcliff-Icon.webp)
 
-**yoink** or **heathcliff** <br> she they cis female
+**koe** or **trip** <br> she they cis female
   
   ━━━━━━━━━━
 
