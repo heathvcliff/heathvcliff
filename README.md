@@ -12,7 +12,7 @@ heathcliff fictionkin <br> i will be rude at certain times
 
 ━━━━━━━━━━
 
-always with friends; **fat gc**, **kiwi** or **bryce** <br> semi-sensitive person <br> basic dni, i dont block
+always with friends; **fat gc**, **feet trip** or **bryce** <br> semi-sensitive person <br> basic dni, i dont block
 
 [ata](https://lickylee.atabook.org/) <br> 
 
